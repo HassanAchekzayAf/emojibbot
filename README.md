@@ -1,0 +1,2 @@
+# emojibbot
+afghan pay
